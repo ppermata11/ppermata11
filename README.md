@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ppermata11
+- 👀 I’m interested in information
+- 🌱 I’m currently learning universitas lampung
